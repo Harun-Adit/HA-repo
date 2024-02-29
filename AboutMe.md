@@ -1,3 +1,4 @@
 Nama : Harun Adityansyah
 Jenis kelamin : Laki-laki
-Umur : 16 tahun
+Umur : 17 tahun
+Hobi : Baca, Tulis, dan Nge-game
